@@ -1,4 +1,4 @@
-# 🌱 **PVZ Fusion APK 2.1.8 [Actualización] Descargar Última Versión 2025**  
+# **PVZ Fusion APK 2.1.8 [Actualización] Descargar Última Versión 2025**  
 
 [![des](https://github.com/user-attachments/assets/79d0b3c5-a7cb-4beb-9485-b0da1d1a13a6)](https://bom.so/ZxkyBR)
 
